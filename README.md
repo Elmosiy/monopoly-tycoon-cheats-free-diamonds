@@ -1,2 +1,5 @@
-# monopoly-tycoon-cheats-free-diamonds
-Monopoly Tycoon Cheats unlimited money free diamonds Hacks IOS Android
+# Monopoly Tycoon Cheats unlimited money free diamonds Hacks IOS Android
+
+Monopoly Tycoon Cheats unlimited money free diamonds Hacks IOS Android guide - The leftmost icon above the large red button at the bottom of the screen is the research icon. Once you click it, you will see a variety of research options, which will directly or indirectly bring higher profits. You usually have enough money to buy more than one research project at a time, and you can click the question mark next to the research name to know that it does better. If you know you want to increase the percentage provided by each available research option, it's best to buy anything as much as possible. Every study you pay for will make the next one more expensive, but as the level of research improves, your profits will increase exponentially, and the price doesn't seem to be that high in the near future. However, for best results, please study the cheapest first to make the most of your existing cash. If you want to achieve your city goals quickly and enter the next larger Monopoly Tycoon city, speed will be crucial, so please click and keep any available research options at any time, and quickly spend your income on any available research projects you can afford.
+
+<a href="https://windmod.icu/monopoly-tycoon/">go here</a>
